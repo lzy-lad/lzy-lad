@@ -1,6 +1,6 @@
 ### 👋 Hi, I’m @lzy-lad aka **Dheeraj Santosh Kollipara.** but most of the people on this planet know me as **Lzy Lad.** 
 
-### I am a 26-Year-Old, Polymath and a Creative Nomad From India. I work across the intersection of Technology, Science, Art and Design.
+### I am a 28-Year-Old, Polymath and a Creative Nomad From India. I work across the intersection of Technology, Science, Art and Design.
 
 ## I am a Self-Learnt
 
